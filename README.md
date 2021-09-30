@@ -10,6 +10,6 @@
 Dont loose by get caught by a head, blocks! Get those toilet papers and soon will be added more!
 
 ### Play online now
-[Click here](https://endternvl.github.io/cart-run)
+[Click here](https://endternvl.github.io/Cart-Run)
 
 ## Warning = Only Works On Console!
